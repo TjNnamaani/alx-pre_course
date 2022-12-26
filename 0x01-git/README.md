@@ -1,1 +1,1 @@
-JESUS CHRIST IS THE GREATEST
+I trust that JESUS will eventually save me from Hell
